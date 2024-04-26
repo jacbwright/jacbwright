@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Jacob Wright.
 - 📈 Interested in finance, web3, technology, and the outdoors. 
 - 👨🏻‍💻 Currently a Sr. Solutions Engineer with Apex Fintech Solutions.
-- 📫 You can reach me at jacbwright@gmail.com.
+- 📫 You can reach me at jacbwright@protonmail.com.
